@@ -1,2 +1,0 @@
-# Tea-Mates
-Tea-Mates
